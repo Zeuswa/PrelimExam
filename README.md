@@ -1,3 +1,7 @@
-# "JOSHUA - OROZCO"
-## "Playing basketball, playing online games, jogging, gym, hiking."
-###### "Orozco Joshua, Micah Kate Arayan, Inchoco Ferdinand"
+**# " JOSHUA - OROZCO "**
+=============================
+*## " You cannot call it success without failures."*
+=========================================================
+*### " Joshua Orozco, 2020 "*
+==============================
+*###### " Orozco Joshua, Micah Kate Arayan, Inchoco Ferdinand "*
